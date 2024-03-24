@@ -5,6 +5,8 @@
 - 📫 You can reach me through my [university page](https://www.hs-furtwangen.de/personen/profil/2786-michaeldoerflinger/).
 
 
+[Buy me a coffee](https://www.buymeacoffee.com/michdo93)
+
 # Reward bonus
 
 At least you can look [here](https://referralcodes.com/Michdo93)
