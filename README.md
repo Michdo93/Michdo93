@@ -24,3 +24,5 @@ At least you can look [here](https://referralcodes.com/Michdo93)
 - [Trade Republic](https://ref.trade.re/7lqj0jz5)
 - Code: 7LQJ0JZ5
 - 100€ or part of a free share
+- [Shoop](https://www.shoop.de/invite/wviejvzt0t/)
+- Easter is just around the corner and we want you to enjoy this festive season with extra benefits. Invite your friends now and you'll receive a €15 bonus for every invitation. Of course, your friends won't go away empty-handed and will be rewarded with a €15 bonus. Celebrate Easter with double the joy this year - it's never been easier to give each other presents and save big at the same time! Please note: Your bonus will not be visibly earmarked at first. As soon as your friend has collected €10 in available cashback, you will receive your bonus. If your friends register with Shoop during the promotion period (i.e. from 18/03/2024 from 10:00 am to 24/03/2024 at 11:59 pm) and then make a purchase for at least €10 gross via Shoop within 7 days, they will receive their bonus!
