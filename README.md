@@ -11,6 +11,8 @@
 
 At least you can look [here](https://referralcodes.com/Michdo93)
 
+- [Finanzen.net Zero](https://mein.finanzen-zero.net/depot-eroeffnen?aorefid=KWK-KMKAJ5N4MTG4)
+- You will receive a bonus of 50 euros and a free share for every brokered securities account opening.
 - [MyProtein](https://de.myprotein.com/referrals.list?applyCode=MICHAEL-R1CLC)
 - Get $15 NOW for every successfully referred friend who spends over $35. In return, they will receive free shipping for 3 months when they spend over $35. Your friends must not add another discount code in the shopping cart or your credit will not work.
 - [Grünfin](https://app.grunfin.com/referral/hpUxfq54)
