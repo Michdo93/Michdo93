@@ -11,6 +11,10 @@
 
 At least you can look [here](https://referralcodes.com/Michdo93)
 
+- [Binance](https://www.binance.com/en/qr/dplk-usltc21c8fe37d1142eea82eae049944fdd3)
+- Want to get 100 USDT? Register and deposit more than $50 into your account. We'll both get a 100 USDT cashback voucher!
+- Lite Referal ID: CPA_00QDG3TWQJ
+- Lite Referal Link: https://www.binance.com/en/activity/referral-entry/CPA?ref=CPA_00QDG3TWQJ
 - [OSKAR](https://www.oskar.de/)
 - As soon as the account is opened and money is invested in an OSKAR strategy, you will receive a welcome bonus of 10 euros and your friend will receive a thank-you gift of 10 euros.
 - Promo Code: michaeld116686-g
