@@ -11,6 +11,9 @@
 
 At least you can look [here](https://referralcodes.com/Michdo93)
 
+- [Nexo](https://nexo.com/ref/gyhmfdm0pt?src=web-link)
+- Code: gyhmfdm0pt
+- For every friend who tops up $100 or more, we’ll reward both of you with $25 in BTC.
 - [C24](https://s.c24.de/tLZ7DRbfiU/)
 - Code: C24MD2A3C9E76
 - Secure Germany's best current account with 2.5 % interest p.a. at C24 Bank. Simply use my invitation code C24MD2A3C9E76 or register directly via the link: [https://s.c24.de/tLZ7DRbfiU/](https://s.c24.de/tLZ7DRbfiU/). You must make 3 card payments totalling 30€. You will then be credited with 70€.
