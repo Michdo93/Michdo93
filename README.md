@@ -11,6 +11,12 @@
 
 At least you can look [here](https://referralcodes.com/Michdo93)
 
+- [PACE Drive](https://friends.pace.cloud/redeem/accept/3P5S48?utm_campaign=friend-referral&utm_content=code:3P5S48)
+- Code: 3P5S48
+- Save 5 euro cents per litre at selected petrol stations.
+- [Robinhood Crypto](https://join.robinhood.com/eu_crypto/michaed-edf3a5/)
+- Code: michaed-edf3a5
+- We will both get up to 2 BTC until 2 April when you sign up for a Robinhood Crypto account with my link and trade at least 10 € of crypto.
 - [justTrade](https://www.justtrade.com/freunde-werben-aktion/?jt_s=KWK&jt_p=6601e351d82e610008d75001&jt_c=STANDARD)
 - 50€ bonus: 25€ for you as the referrer and 25€ for your friend.
 - [Binance](https://www.binance.com/en/qr/dplk-usltc21c8fe37d1142eea82eae049944fdd3)
