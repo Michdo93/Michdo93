@@ -11,6 +11,8 @@
 
 At least you can look [here](https://referralcodes.com/Michdo93)
 
+- [justTrade](https://www.justtrade.com/freunde-werben-aktion/?jt_s=KWK&jt_p=6601e351d82e610008d75001&jt_c=STANDARD)
+- 50€ bonus: 25€ for you as the referrer and 25€ for your friend.
 - [Binance](https://www.binance.com/en/qr/dplk-usltc21c8fe37d1142eea82eae049944fdd3)
 - Want to get 100 USDT? Register and deposit more than $50 into your account. We'll both get a 100 USDT cashback voucher!
 - Lite Referal ID: CPA_00QDG3TWQJ
