@@ -11,6 +11,10 @@
 
 At least you can look [here](https://referralcodes.com/Michdo93)
 
+- [Revolut](https://revolut.com/referral/?referral-code=michae7gxn!APR1-24-AR)
+- Code: michae7gxn!APR1-24-AR
+- I will receive 70€ we can make 50:50.
+- You have to add money to your depot. Then you have to order a phycial card. This physical card you can add to Apple Pay or Google Pay. Finally, you must make 3 payments of more than 5€.
 - [Nexo](https://nexo.com/ref/gyhmfdm0pt?src=web-link)
 - Code: gyhmfdm0pt
 - For every friend who tops up $100 or more, we’ll reward both of you with $25 in BTC.
