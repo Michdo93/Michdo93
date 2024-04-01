@@ -4,8 +4,33 @@
 - 💞️ I want to work on projects that change the future.
 - 📫 You can reach me through my [university page](https://www.hs-furtwangen.de/personen/profil/2786-michaeldoerflinger/).
 
+# Donation
 
 [Buy me a coffee](https://www.buymeacoffee.com/michdo93)
+
+Bitcoin:
+
+```
+35C4q4bjWXNFEB7Lz6k84kc8QZm8BEg3Be
+```
+
+Solana:
+
+```
+DCxSHDd2XNLKsxWfMrJ4CyxGZBPvFqWNgUzHKN9bQsce
+```
+
+Solana:
+
+```
+pDDGzftN9QxgSWr81w1rism5K2FsMp6EpS398mbJYoM
+```
+
+vechain:
+
+```
+0x4B2D60403E157FdFb60dF7850d30cf8aBE12668C
+```
 
 # Reward bonus
 
