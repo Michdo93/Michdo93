@@ -12,6 +12,9 @@
 
 At least you can look [here](https://referralcodes.com/Michdo93)
 
+- [Scalabe Wealth/Scalable Capital](https://de.scalable.capital/einladung/b4n8fg)
+- Code: b4n8fg
+- If you refer me to Scalable Wealth, I will receive €50 as a bonus, if you refer me to Scalable Capital, I will receive €25. I would send you half of the bonus if you provide your PayPal address.
 - [BISON](https://join.bisonapp.com/pq7mrh)
 - Code: pq7mrh
 - Receive 10.00€ in BTC for every successfully referred user. The referred user receives 10.00€ in BTC.
