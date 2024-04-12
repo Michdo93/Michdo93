@@ -12,6 +12,8 @@
 
 At least you can look [here](https://referralcodes.com/Michdo93)
 
+- [Sim.de](https://www.sim.de?kw=t%2FgYMZXXGNSE5gAwCYEUBQ%3D%3D)
+- I will receive 20€ 16 days after your card is activated. I will give you 10€ via PayPal.
 - [YouHodler](https://app.youhodler.com/sign-up?ref=NGM9LJCI)
 - Code: NGM9LJCI
 - After successful registration and verification, you will receive $10 with the Youhodler promo code for a deposit of at least €200. You will receive a further $30 for 1 trade with the MultiHodl function from €100.
