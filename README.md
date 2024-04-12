@@ -12,6 +12,9 @@
 
 At least you can look [here](https://referralcodes.com/Michdo93)
 
+- [YouHodler](https://app.youhodler.com/sign-up?ref=NGM9LJCI)
+- Code: NGM9LJCI
+- After successful registration and verification, you will receive $10 with the Youhodler promo code for a deposit of at least €200. You will receive a further $30 for 1 trade with the MultiHodl function from €100.
 - [Scalabe Wealth/Scalable Capital](https://de.scalable.capital/einladung/b4n8fg)
 - Code: b4n8fg
 - If you refer me to Scalable Wealth, I will receive €50 as a bonus, if you refer me to Scalable Capital, I will receive €25. I would send you half of the bonus if you provide your PayPal address.
