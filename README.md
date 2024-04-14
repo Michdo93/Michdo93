@@ -12,6 +12,8 @@
 
 At least you can look [here](https://referralcodes.com/Michdo93)
 
+- [Tarifcheck Partnerprogramm](https://a.partner-versicherung.de/click.php?partner_id=172194&ad_id=1174&target_url=https://www.tarifcheck-partnerprogramm.de?pr=172194)
+- 
 - [ShopBack](https://app.shopback.com/og8xhk8bLIb)
 - Code: og8xhk8bLIb
 - You will directly receive 10€. But you have to add your PayPal address after that and make a purchase of 10€ or more.
