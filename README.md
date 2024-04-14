@@ -12,8 +12,6 @@
 
 At least you can look [here](https://referralcodes.com/Michdo93)
 
-- [Tarifcheck Partnerprogramm](https://a.partner-versicherung.de/click.php?partner_id=172194&ad_id=1174&target_url=https://www.tarifcheck-partnerprogramm.de?pr=172194)
-- 
 - [ShopBack](https://app.shopback.com/og8xhk8bLIb)
 - Code: og8xhk8bLIb
 - You will directly receive 10€. But you have to add your PayPal address after that and make a purchase of 10€ or more.
@@ -74,3 +72,47 @@ At least you can look [here](https://referralcodes.com/Michdo93)
 - Easter is just around the corner and we want you to enjoy this festive season with extra benefits. Invite your friends now and you'll receive a €15 bonus for every invitation. Of course, your friends won't go away empty-handed and will be rewarded with a €15 bonus. Celebrate Easter with double the joy this year - it's never been easier to give each other presents and save big at the same time! Please note: Your bonus will not be visibly earmarked at first. As soon as your friend has collected €10 in available cashback, you will receive your bonus. If your friends register with Shoop during the promotion period (i.e. from 18/03/2024 from 10:00 am to 24/03/2024 at 11:59 pm) and then make a purchase for at least €10 gross via Shoop within 7 days, they will receive their bonus!
 - [GETMORE](https://bit.ly/4cxqzWI)
 - It's worth recommending them, because every friend receives a one-off 5 euro bonus and a permanent 10% commission from their cashback. Of course, this doesn't reduce anything for your friend! If he invites a friend himself, he will receive 5% commission from his friend's Cashback2 on top.
+
+# Tarifcheck Partnerprogramm
+- [Tarifcheck Partnerprogramm](https://a.partner-versicherung.de/click.php?partner_id=172194&ad_id=1174&target_url=https://www.tarifcheck-partnerprogramm.de?pr=172194)
+
+## KFS-Versicherung
+- [KFZ-Versicherung](https://a.partner-versicherung.de/click.php?partner_id=172194&ad_id=15&deep=kfz-versicherung)
+- [Motorrad-Versicherung](https://a.partner-versicherung.de/click.php?partner_id=172194&ad_id=15&deep=motorradversicherung)
+
+## Vorsorge-Versicherung
+- [Rentenversicherung](https://a.partner-versicherung.de/click.php?partner_id=172194&ad_id=15&deep=rentenversicherung)
+- [Berufsunfähigkeitsversicherung](https://a.partner-versicherung.de/click.php?partner_id=172194&ad_id=15&deep=berufsunfaehigkeitsversicherung)
+- [Lebebsversicherung](https://a.partner-versicherung.de/click.php?partner_id=172194&ad_id=15&deep=lebensversicherung)
+- [Unfallversicherung](https://a.partner-versicherung.de/click.php?partner_id=172194&ad_id=15&deep=unfallversicherung)
+- [Riesterrente](https://a.partner-versicherung.de/click.php?partner_id=172194&ad_id=15&deep=riester-rente)
+- [Risikolebensversicherung](https://a.partner-versicherung.de/click.php?partner_id=172194&ad_id=15&deep=risikolebensversicherung)
+- [Rüruprente](https://a.partner-versicherung.de/click.php?partner_id=172194&ad_id=15&deep=ruerup-rente)
+- [Pflegezusatzversicherung](https://a.partner-versicherung.de/click.php?partner_id=172194&ad_id=15&deep=pflegezusatzversicherung)
+
+## Krankenversicherung
+- [PKV-Vollversicherung](https://a.partner-versicherung.de/click.php?partner_id=172194&ad_id=15&deep=private-krankenversicherung)
+- [PKV für Beamte](https://a.partner-versicherung.de/click.php?partner_id=172194&ad_id=15&deep=private-krankenversicherung)
+- [Krankenzusatzversicherung](https://a.partner-versicherung.de/click.php?partner_id=172194&ad_id=15&deep=krankenzusatzversicherung)
+- [PKV für Studenten](https://a.partner-versicherung.de/click.php?partner_id=172194&ad_id=15&deep=private-krankenversicherung)
+- [PKV für Ü55](https://a.partner-versicherung.de/click.php?partner_id=172194&ad_id=15&deep=private-krankenversicherung)
+
+## Sachversicherungen
+
+- [Hundekrankenversicherung](https://a.partner-versicherung.de/click.php?partner_id=172194&ad_id=15&deep=hundekrankenversicherung)
+- [Haftpflichtversicherung](https://a.partner-versicherung.de/click.php?partner_id=172194&ad_id=15&deep=haftpflichtversicherung)
+- [Hausratsversicherung](https://a.partner-versicherung.de/click.php?partner_id=172194&ad_id=15&deep=hausratversicherung)
+- [Tierhalterversicherung](https://a.partner-versicherung.de/click.php?partner_id=172194&ad_id=15&deep=hundeversicherung)
+- [Wohngebäudeversicherung](https://a.partner-versicherung.de/click.php?partner_id=172194&ad_id=15&deep=wohngebaeudeversicherung)
+- [Haus- und Grundbesitzversicherung](https://a.partner-versicherung.de/click.php?partner_id=172194&ad_id=15&deep=grundbesitzerhaftpflicht)
+- [Rechtsschutzversicherung](https://a.partner-versicherung.de/click.php?partner_id=172194&ad_id=15&deep=rechtsschutzversicherung)
+- [Firmenversicherung](https://a.partner-versicherung.de/click.php?partner_id=172194&ad_id=15&deep=firmenversicherung)
+
+## Finanzen
+
+- [Girokonto](https://a.partner-versicherung.de/click.php?partner_id=172194&ad_id=15&deep=girokonto)
+- [Baufinanzierung](https://a.partner-versicherung.de/click.php?partner_id=172194&ad_id=15&deep=baufinanzierung)
+- [Kredit](https://a.partner-versicherung.de/click.php?partner_id=172194&ad_id=15&deep=kredit)
+
+## Ernergie, Reisen & DSL
+
