@@ -84,7 +84,7 @@ At least you can look [here](https://referralcodes.com/Michdo93)
 # Tarifcheck Partnerprogramm
 - [Tarifcheck Partnerprogramm](https://a.partner-versicherung.de/click.php?partner_id=172194&ad_id=1174&target_url=https://www.tarifcheck-partnerprogramm.de?pr=172194)
 
-## KFS-Versicherung
+## KFZ-Versicherung
 - [KFZ-Versicherung](https://a.partner-versicherung.de/click.php?partner_id=172194&ad_id=15&deep=kfz-versicherung)
 - [Motorrad-Versicherung](https://a.partner-versicherung.de/click.php?partner_id=172194&ad_id=15&deep=motorradversicherung)
 
