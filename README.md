@@ -15,10 +15,9 @@
 At least you can look [here](https://referralcodes.com/Michdo93)
 
 - [Roland](https://studio.roland-rechtsschutz.de/public/c/73rMTZq1TvWBqLzT9hZseAkmpGVrv-TKSoXoEI1GMiCgymv9e9-lTquPhxu6vR7UXg?a=SElFUg)
-- You can choose between `Myself` and `The two of us` for the reward bonus.
-- 50€ for [Top Rechtsschutz Basis](https://www.roland-rechtsschutz-empfehlen.de/de/empfehlen/262).
-- 60€ for [Top Rechtsschutz Komfort](https://www.roland-rechtsschutz-empfehlen.de/de/empfehlen/263).
-- 70€ for [Top Rechtsschutz Premium](https://www.roland-rechtsschutz-empfehlen.de/de/empfehlen/264).
+- 25€ for you and 25€ for me [Top Rechtsschutz Basis](https://www.roland-rechtsschutz-empfehlen.de/de/PV9A4jLR).
+- 30€ for you and 30€ for me [Top Rechtsschutz Komfort](https://www.roland-rechtsschutz-empfehlen.de/de/PmMPJsds).
+- 30€ for you and 40€ for me [Top Rechtsschutz Premium](https://www.roland-rechtsschutz-empfehlen.de/de/PAZa5L9R).
 - [ShopBack](https://app.shopback.com/og8xhk8bLIb)
 - Code: og8xhk8bLIb
 - You will directly receive 10€. But you have to add your PayPal address after that and make a purchase of 10€ or more.
