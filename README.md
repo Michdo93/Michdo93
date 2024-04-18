@@ -14,6 +14,12 @@
 
 At least you can look [here](https://referralcodes.com/Michdo93)
 
+- [crypto.com](https://crypto.com/app/2srchc2efn)
+- Code: 2srchc2efn
+- The referrer and the referred person receive 25 dollars for the mere registration and verification. And a metal Cypto.com Visa Card in first 30 days.
+- [KuCoin](https://www.kucoin.com/r/rf/r8VCG5T)
+- Code: r8VCG5T
+- 100 USDT guaranteed. Referrer and referred have the chance to earn 20% commission and up to 20,000 USDT.
 - [TF Bank](https://tfbank.de/mastercard-gold/freundewerbenfreunde-antrag?referralIdentifier=d81f9b95-c1f3-49df-9437-01ad333bf383)
 - 25€ for you and 25€ for me.
 - [Roland](https://studio.roland-rechtsschutz.de/public/c/73rMTZq1TvWBqLzT9hZseAkmpGVrv-TKSoXoEI1GMiCgymv9e9-lTquPhxu6vR7UXg?a=SElFUg)
