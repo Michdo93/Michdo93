@@ -14,6 +14,8 @@
 
 At least you can look [here](https://referralcodes.com/Michdo93)
 
+- [American Express Payback Mastercard](http://americanexpress.com/de-de/referral/payback?ref=mICHADH7FI&XL=MNANS)
+- You will earn 4000 Payback points and I will earn 2000 Payback points after your first payment with your new Amex.
 - [Bank Norwegian Mastercard](https://www.banknorwegian.de/referral/i0e6513p/)
 - I can refer up to 10 people and we will each receive 20€ as a referral bonus.
 - [Bitpanda](https://www.bitpanda.com/?ref=970870600834134832)
