@@ -14,6 +14,8 @@
 
 At least you can look [here](https://referralcodes.com/Michdo93)
 
+- [Bank Norwegian Mastercard](https://www.banknorwegian.de/referral/i0e6513p/)
+- I can refer up to 10 people and we will each receive 20€ as a referral bonus.
 - [Bitpanda](https://www.bitpanda.com/?ref=970870600834134832)
 - We both will earn the same rewards if you invest in Crypto Currencies or BCIs. If you invest 500€ we both will earn 5€, if you invest 1.000€ we will earn 10€, if you invest 2.000€ we will earn 15€, if you invest 5.000€ we will earn 30€, if you invest 10.000€ we will earn 40€. So totally we both can earn 100€.
 - [crypto.com](https://crypto.com/app/2srchc2efn)
