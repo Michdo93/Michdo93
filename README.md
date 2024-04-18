@@ -14,6 +14,9 @@
 
 At least you can look [here](https://referralcodes.com/Michdo93)
 
+- [OKX](https://okx.com/join/70074075)
+- Code: 70074075
+- Each time a friend signs up and makes a trade worth 100 EUR or more, you'll both get 10 EUR in BTC.
 - [American Express Payback Mastercard](http://americanexpress.com/de-de/referral/payback?ref=mICHADH7FI&XL=MNANS)
 - You will earn 4000 Payback points and I will earn 2000 Payback points after your first payment with your new Amex.
 - [Bank Norwegian Mastercard](https://www.banknorwegian.de/referral/i0e6513p/)
