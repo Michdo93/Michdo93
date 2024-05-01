@@ -14,6 +14,9 @@
 
 At least you can look [here](https://referralcodes.com/Michdo93)
 
+- [Anycoin direct](https://anycoindirect.eu/de?refcode=df805612-114a-4653-bba5-4e721c10ed90)
+- Share this affiliate link with your friends and you will receive a percentage of all your purchases in the form of credits. You can earn
+ (25%) of the total order value.
 - [SumUp](https://www.sumup.io/download)
 - Code: MICHAEL2214
 - Make more of your money with SumUp Pay. Earn cashback on every purchase with the SumUp Pay card and get an additional €15 🎁 💸 with my code: MICHAEL2214
