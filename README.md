@@ -14,6 +14,8 @@
 
 At least you can look [here](https://referralcodes.com/Michdo93)
 
+- [PayZy](https://baf.payzy.gr/04b5ff33-3b89-4c51-817f-cfee8011720d)
+- You will receive 500 Coins (5€) and I will receive 10€ as balance. If you write me a message and if it is your first message you will receive 10 Coins (0,10€) and I can send you the half of the 10€, so you will also receive 5€ from me.
 - [Dogeverse](https://bs_4b5adfef.earnashare.care/?aff=514905)
 - 5% Provsions/Commissions
 - [OKX](https://okx.com/join/70074075)
