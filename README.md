@@ -14,7 +14,7 @@
 
 At least you can look [here](https://referralcodes.com/Michdo93)
 
-- [Anycoin direct](https://anycoindirect.eu/de?refcode=df805612-114a-4653-bba5-4e721c10ed90)
+- [Anycoin Direct](https://anycoindirect.eu/de?refcode=df805612-114a-4653-bba5-4e721c10ed90)
 - Share this affiliate link with your friends and you will receive a percentage of all your purchases in the form of credits. You can earn
  (25%) of the total order value.
 - [SumUp](https://www.sumup.io/download)
