@@ -14,6 +14,8 @@
 
 At least you can look [here](https://referralcodes.com/Michdo93)
 
+- [Dogeverse](https://bs_4b5adfef.earnashare.care/?aff=514905)
+- 5% Provsions/Commissions
 - [OKX](https://okx.com/join/70074075)
 - Code: 70074075
 - Each time a friend signs up and makes a trade worth 100 EUR or more, you'll both get 10 EUR in BTC.
