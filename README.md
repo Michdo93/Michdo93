@@ -14,6 +14,8 @@
 
 At least you can look [here](https://referralcodes.com/Michdo93)
 
+- [growney](https://growney.de/r/vwytzxf)
+- Recommend our ETF custody account to friends and receive € 75 for every referred customer who invests at least € 5,000. The promotion is valid from 01.05.2024 - 30.06.2024. The referred customer will also receive a bonus of € 75. Simply forward the following link to the interested party.
 - [Anycoin Direct](https://anycoindirect.eu/de?refcode=df805612-114a-4653-bba5-4e721c10ed90)
 - Share this affiliate link with your friends and you will receive a percentage of all your purchases in the form of credits. You can earn
  (25%) of the total order value.
