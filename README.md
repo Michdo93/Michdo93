@@ -14,6 +14,9 @@
 
 At least you can look [here](https://referralcodes.com/Michdo93)
 
+- [Plutus](https://dex.plutus.it/auth/referee/signup?refId=Gr8tMb)
+- Code: Gr8tMb
+- $ 10 in PLU for you and your friends. Referee must complete onboarding steps and make a deposit to their Plutus Account for the rewards to be distributed within 45 days.
 - [growney](https://growney.de/r/vwytzxf)
 - Recommend our ETF custody account to friends and receive € 75 for every referred customer who invests at least € 5,000. The promotion is valid from 01.05.2024 - 30.06.2024. The referred customer will also receive a bonus of € 75. Simply forward the following link to the interested party.
 - [Anycoin Direct](https://anycoindirect.eu/de?refcode=df805612-114a-4653-bba5-4e721c10ed90)
