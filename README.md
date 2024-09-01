@@ -47,6 +47,24 @@ At least you can look [here](https://referralcodes.com/Michdo93)
 - [KuCoin](https://www.kucoin.com/r/rf/r8VCG5T)
 - Code: r8VCG5T
 - 100 USDT guaranteed. Referrer and referred have the chance to earn 20% commission and up to 20,000 USDT.
+- [Bitget](https://share.bitget.com/u/UC87BFQN)
+- Code: KBJY6D2L
+- Chance to win 1530 USDT.
+- [MEXC](https://www.mexc.com/de-DE/login?inviteCode=12RWpD)
+- Code: 12RWpD
+- Chance to win 1000 USDT.
+- [Bitvavo](https://bitvavo.com/invite?a=3690EA9E68)
+- Code: 3690EA9E68
+- Trade 10000€ free of charge. (Possible €10 registration bonus for deposits of €10).
+- [SwissBorg](https://join.swissborg.com/de/r/michaeDU7U)
+- Code: michaeDU7U
+- Up to €100 in BORG with a deposit of €50 or a cryptocurrency worth €50.
+- [HTX](https://www.htx.com/en-us/v/register/double-invite/?invite_code=4mz69223&inviter_id=11346560)
+- Code: 4mz69223
+- Get 241 USDT registration bonus (100 USDT is the normal registration bonus).
+- [Bybit](https://www.bybit.com/promo/campaign/Referral-VIP-Carnival?campaignId=1821092700569473024&ref=3B71G1J)
+- Code: 3B71G1J
+- Up to 200 USDT and the chance to win an iPhone 15.
 - [TF Bank](https://tfbank.de/mastercard-gold/freundewerbenfreunde-antrag?referralIdentifier=d81f9b95-c1f3-49df-9437-01ad333bf383)
 - 25€ for you and 25€ for me.
 - [Roland](https://studio.roland-rechtsschutz.de/public/c/73rMTZq1TvWBqLzT9hZseAkmpGVrv-TKSoXoEI1GMiCgymv9e9-lTquPhxu6vR7UXg?a=SElFUg)
