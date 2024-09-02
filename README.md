@@ -122,8 +122,8 @@ At least you can look [here](https://referralcodes.com/Michdo93)
 - You will receive 80€ and 19€ in crypto currencies
 - [eToro](https://etoro.tw/3vmwc9B)
 - You have to deposit $100 and I will earn $200. From this $200 I will send you $100 back if you send me an email with your PayPal address. I only send to PayPal addresses because I can withdraw to PayPal after receiving the bonus.
-- [PayPal](https://www.aklamio.com/v/dbb88e9baf52366d932549756f568f04/r?productId=brand&rr=shared&uid=ceef9d417743849da68b6413994da9a5&sharingID=d4584de6fd98fb206dfa3cd12848575e)
-- 5€ for you & 5€ for me cashback via Aklamio.
+- [PayPal](https://py.pl/IMB8R)
+- If you register and spend €5 within 30 days, you have the chance to win a €10 bonus. Promotion conditions apply (see below). End of promotion: December 31, 2024, rewards valid until March 31, 2025.
 - [Trade Republic](https://ref.trade.re/7lqj0jz5)
 - Code: 7LQJ0JZ5
 - 100€ or part of a free share
