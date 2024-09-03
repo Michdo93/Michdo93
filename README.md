@@ -27,6 +27,9 @@ At least you can look [here](https://referralcodes.com/Michdo93)
 - Code: 5065659
 - Hi, do you know BERGFÜRST? There you can invest in offers and earn interest of up to 10 % p.a. Just give it a try: We'll both receive a 3.0% discount as a gift! Voucher code 5065659 https://lp.bergfuerst.com/freunde-werben?couponcode=5065659
 - Recommend our ETF custody account to friends and receive € 75 for every referred customer who invests at least € 5,000. The promotion is valid from 01.05.2024 - 30.06.2024. The referred customer will also receive a bonus of € 75. Simply forward the following link to the interested party.
+- [Bondora Capital](https://app.bondora.com/de/ref/michaelc62)
+- Code: michaelc62
+- You will receive a starting bonus of 5€. If you invest more than 50€, I will also receive a bonus of 5€.
 - [Anycoin Direct](https://anycoindirect.eu/de?refcode=df805612-114a-4653-bba5-4e721c10ed90)
 - Share this affiliate link with your friends and you will receive a percentage of all your purchases in the form of credits. You can earn
  (25%) of the total order value.
