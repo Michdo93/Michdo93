@@ -22,6 +22,10 @@ At least you can look [here](https://referralcodes.com/Michdo93)
 - $ 10 in PLU for you and your friends. Referee must complete onboarding steps and make a deposit to their Plutus Account for the rewards to be distributed within 45 days.
 - [Timeless Investments](https://www.timeless.investments/referral/0ZIx-gq/invitation)
 - Do you already know Timeless? With Timeless I invest in sneakers, watches, art and much more. Try it out! If you register via my link below, you will receive a 20€ bonus.
+- [Splint Invest](https://splintinvest.onelink.me/n6C4/start)
+- Code: 20644024
+- You can invest from 50€ and receive a 50€ voucher. After the term of the investment, however, you will only receive the profit back and you can use the voucher again for the next investment. If you invest more than 50€ yourself, you will receive a bonus of 50€.
+- https://splintinvest.onelink.me/n6C4/start
 - [growney](https://growney.de/r/vwytzxf)
 - [Bergfürst](https://lp.bergfuerst.com/freunde-werben?couponcode=5065659)
 - Code: 5065659
