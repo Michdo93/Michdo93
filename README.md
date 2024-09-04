@@ -25,7 +25,6 @@ At least you can look [here](https://referralcodes.com/Michdo93)
 - [Splint Invest](https://splintinvest.onelink.me/n6C4/start)
 - Code: 20644024
 - You can invest from 50€ and receive a 50€ voucher. After the term of the investment, however, you will only receive the profit back and you can use the voucher again for the next investment. If you invest more than 50€ yourself, you will receive a bonus of 50€.
-- https://splintinvest.onelink.me/n6C4/start
 - [growney](https://growney.de/r/vwytzxf)
 - [Bergfürst](https://lp.bergfuerst.com/freunde-werben?couponcode=5065659)
 - Code: 5065659
