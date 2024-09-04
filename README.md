@@ -25,11 +25,13 @@ At least you can look [here](https://referralcodes.com/Michdo93)
 - [Splint Invest](https://splintinvest.onelink.me/n6C4/start)
 - Code: 20644024
 - You can invest from 50€ and receive a 50€ voucher. After the term of the investment, however, you will only receive the profit back and you can use the voucher again for the next investment. If you invest more than 50€ yourself, you will receive a bonus of 50€.
+- [DEGIRO](https://www.degiro.de/kunden-werben-kunden/anlagekonto-eroeffnen?id=070BA13A&utm_source=mgm)
+- You will receive a transaction voucher in the amount of your transaction fees (e.g. DAX €4.90 per trade, HKEX, €3.90 per trade, NYSE or NASDAQ approx. €0.50 per trade, etc.) After the Referred Customer has accumulated €5 worth of transaction and/or processing fees, I will receive 50€ in my DEGIRO account! The referred customer can get the 5€ (or more) refunded using the transaction voucher (I got something around 11€ refunded). You effectively only pay the market value of your share(s).
 - [growney](https://growney.de/r/vwytzxf)
+- Recommend our ETF custody account to friends and receive € 75 for every referred customer who invests at least € 5,000. The promotion is valid from 01.05.2024 - 30.06.2024. The referred customer will also receive a bonus of € 75. Simply forward the following link to the interested party.
 - [Bergfürst](https://lp.bergfuerst.com/freunde-werben?couponcode=5065659)
 - Code: 5065659
 - Hi, do you know BERGFÜRST? There you can invest in offers and earn interest of up to 10 % p.a. Just give it a try: We'll both receive a 3.0% discount as a gift! Voucher code 5065659 https://lp.bergfuerst.com/freunde-werben?couponcode=5065659
-- Recommend our ETF custody account to friends and receive € 75 for every referred customer who invests at least € 5,000. The promotion is valid from 01.05.2024 - 30.06.2024. The referred customer will also receive a bonus of € 75. Simply forward the following link to the interested party.
 - [Bondora Capital](https://app.bondora.com/de/ref/michaelc62)
 - Code: michaelc62
 - You will receive a starting bonus of 5€. If you invest more than 50€, I will also receive a bonus of 5€.
