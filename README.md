@@ -14,6 +14,9 @@
 
 At least you can look [here](https://referralcodes.com/Michdo93)
 
+- [Bitcoin Cloud Mining](https://cloudminecrypto.com/?invite_code=o2wX1kAml20kO5L8)
+- Code: o2wX1kAml20kO5L8
+- Join the Bitcoin mining app and earn crypto by tracking your sleep. Get 10% extra earnings for me and you by using my link https://cloudminecrypto.com/?invite_code=o2wX1kAml20kO5L8 or download the app and add my invite code o2wX1kAml20kO5L8 directly.
 - [Spartanien](https://www.spartanien.de/?u=116210)
 - Refer friends and acquaintances to Spartania/Abotania and receive a bonus of up to 10€ for every user you refer! You will receive the voucher as soon as your friend has received their first voucher. 
 - [Evergreen](http://www.evergreen.de/)
