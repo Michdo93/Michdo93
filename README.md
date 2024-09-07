@@ -14,6 +14,8 @@
 
 At least you can look [here](https://referralcodes.com/Michdo93)
 
+- [Minersy](https://minersy.com/account/sign-up?ref=459059)
+-  You can earn more for each person you include in our system. 5% of the money your friends earn is yours
 - [SocialGood](https://go.socialgood.inc/?adj_redirect=https%3A%2F%2Fsocialgood.inc%2Fapp%2F1%2F&adj_t=1gbx67rh&adj_deeplink_js=1&referralCode=V6RSR9)
 - Code: V6RSR9
 - Become 200$ in SocialGood.
