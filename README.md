@@ -14,6 +14,8 @@
 
 At least you can look [here](https://referralcodes.com/Michdo93)
 
+- [Spartanien](https://www.spartanien.de/?u=116210)
+- Refer friends and acquaintances to Spartania/Abotania and receive a bonus of up to 10€ for every user you refer! You will receive the voucher as soon as your friend has received their first voucher. 
 - [Evergreen](http://www.evergreen.de/)
 - Code: DBZYXEJR
 - We'll both receive 10€ each if you use my code and set up a 12-month savings plan with at least 1€ per month.
