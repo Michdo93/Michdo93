@@ -14,6 +14,18 @@
 
 At least you can look [here](https://referralcodes.com/Michdo93)
 
+- [GoMining](https://gmt.io/?ref=cuXYr)
+- Code: cuXYr
+- You get a free miner for 6 days, who will mine about 1.5$ dollars during this period.
+- [BTC Coin Mining](https://play.google.com/store/apps/details?id=com.bnx.dacoi&referrer=tgIG9gJ8GIR9yJqaGVgmjxEZtmG3)
+- tgIG9gJ8GIR9yJqaGVgmjxEZtmG3
+- You will earn 7,5$ in BTC
+- [Satoshi Global Free Airdrop](https://invite.satoshiapp.xyz/a6so6)
+- Code: a6so6
+- You will increase the Hashrate of our team by 10%.
+- [Dream to Earn](https://dreamtoearnapp.com/?invite_code=y8xbdjWbB1aJYoP3)
+- Code: y8xbdjWbB1aJYoP3
+- Join Dream to Earn app, and earn crypto by tracking your sleeping. Get 10% extra earnings for me and you by using my link
 - [Minersy](https://minersy.com/account/sign-up?ref=459059)
 - You will receive 2$. After 50$ earnings you can withdraw it. You can earn more for each person you include in our system. 5% of the money your friends earn is yours
 - [SocialGood](https://go.socialgood.inc/?adj_redirect=https%3A%2F%2Fsocialgood.inc%2Fapp%2F1%2F&adj_t=1gbx67rh&adj_deeplink_js=1&referralCode=V6RSR9)
