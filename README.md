@@ -14,6 +14,9 @@
 
 At least you can look [here](https://referralcodes.com/Michdo93)
 
+- [Ecos](https://ecos.am/en/cloud-mining?ref=W0RDqX4I)
+- Code: W0RDqX4I
+- You will receive for 24 hours an 234 TH/S miner which will generate 0.00032639 BTC which is about $19.
 - [GoMining](https://gmt.io/?ref=cuXYr)
 - Code: cuXYr
 - You get a free miner for 6 days, who will mine about 1.5$ dollars during this period.
