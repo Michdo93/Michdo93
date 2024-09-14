@@ -16,7 +16,8 @@ At least you can look [here](https://referralcodes.com/Michdo93)
 
 - [empfohlen.de](https://www.empfohlen.de/start/?promotion=6d37d6f4a288c102&cid=7AR2wvqEDG)
 - If a member referred by you earns €150 within 365 days, you will receive a pro rata amount of €15 - referral commission - which will be automatically credited to you and shown accordingly in your account transactions.
-- 
+- [SeatCoin](https://sweatco.in/i/michaeldoerflinger)
+- You can collect money by recording your steps. You will receive $5.
 - [Ecos](https://ecos.am/en/cloud-mining?ref=W0RDqX4I)
 - Code: W0RDqX4I
 - You will receive for 24 hours an 234 TH/S miner which will generate 0.00032639 BTC which is about $19.
