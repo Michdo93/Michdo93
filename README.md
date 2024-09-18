@@ -14,6 +14,9 @@
 
 At least you can look [here](https://referralcodes.com/Michdo93)
 
+- [FreeBitco.in](https://freebitco.in/?r=54314363)
+- Code: 54314363
+-  FREE BTC: 50% of base prize, MULTIPLY BTC / BETTING: 0.40% of wager / bet, EARN BTC: 25% of base daily interest, TOKEN SALES: 50% of trade fee. We also give you 1 free lottery ticket and 1 reward points for every FREE BTC roll your referrals play!
 - [empfohlen.de](https://www.empfohlen.de/start/?promotion=6d37d6f4a288c102&cid=7AR2wvqEDG)
 - If a member referred by you earns €150 within 365 days, you will receive a pro rata amount of €15 - referral commission - which will be automatically credited to you and shown accordingly in your account transactions.
 - [SeatCoin](https://sweatco.in/i/michaeldoerflinger)
